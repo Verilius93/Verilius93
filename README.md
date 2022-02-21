@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Verilius93
+- 👀 I’m interested in themes that can really be customized. As the pre-installed Dawn theme on Shopify does not avail the downloading of a banner, I am afraid I would be unable to be online if I don't fix a quick solution.
